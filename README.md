@@ -1,0 +1,1 @@
+# Documenta-o-Detalhada-Tecnologias-AWS-e-Conceitos-de-Nuvem
